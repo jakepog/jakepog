@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jakepog
+- 👋 Hi, I’m @JacobMPogson
 - 👀 I’m interested in the brain, ear, and eye… 
 - 🌱 I’m currently learning Maltese, Hebrew, control systems…
 - 💞️ I’m looking to collaborate on …
